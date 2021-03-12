@@ -99,20 +99,32 @@ If there’s one thing you can take away from this article, it’s that your por
 ## My answers to the interview
 
 What’s in my backpack? :school_satchel:
+
 I am a mature professional eager to grow in ITC sector.
 During my first study in Travel and Tourism Business Management. I had the chance to fill my backpack with some travelling experiences. The unique experience of managing a B&B in Venezia and enjoying the Art and Italian culture is one that I will never forget.
+
 I learned to look at people from a different perspective and found my passion for people With that passion, I decided to study Political sciences where I could understand society not just as a travel point of view, but my views are more in detail.
+
 With that backpack, I traveled everywhere I was fortunate to have a scholarship to study at the American University in Cairo, Egypt where I completed my thesis.
+
 The side pockets of my backpack are filled with social and educational moments gained from being involved in activities with movements such as (Oxfam,Red Cross, … ) and hobbies (gardening, horse riding making my own bio organic cosmetics).
+
 I stuffed my backpack with various jobs experiences, here in Belgium I worked for major retail companies such as Mercedez benz, Rituals and Louis Vuitton.
+
 But I am not stopping there, I still have a little bit of space left to hopefully put my Webdesign programme. While the people give me some last-minute treats to take on my journey, I am looking forward to what the big world has to offer when I am done packing.
+
 I want my website in two colours light and soft.
+
 I want my website very simple and user friendly.
+
 I want a photo and contact details with my cv CLEAR on top of the page. No photos.
+
 I would like to have all my projects easy to find and the testimonies.
+
 I want that the programmes I have studied to be easy to read in logos.
 
 I want a call on action button only for potential clients
 
 I want some links to social media
+
 I am still thinking of it
